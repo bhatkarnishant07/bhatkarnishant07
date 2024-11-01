@@ -2,7 +2,7 @@
 - 👀 I’m interested in AI ML
 - 🌱 I’m currently learning Web devlopment 
 - 💞️ I’m looking to collaborate on X (twitter)
-- 📫 How to reach me: X (Twitter)
+- 📫 How to reach me: X (Twitter)https://x.com/nishant_bh5575
 - 😄 Pronouns: Batman
 
 
